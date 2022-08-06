@@ -1,2 +1,0 @@
-# BISHNUPUR
-About Bishnupur 
